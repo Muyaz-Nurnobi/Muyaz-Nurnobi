@@ -7,4 +7,4 @@
 - Telegram https://t.me/MuyazNurnobi
 - Linked in https://www.linkedin.com/in/muyaz-nurnobi-85873a27a/
 - Twitter https://twitter.com/MuyazN
-- medium medium.com/@muyaznurnobi
+- medium https://medium.com/@muyaznurnobi)
